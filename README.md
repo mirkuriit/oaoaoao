@@ -1,2 +1,0 @@
-# oaoaoao
-homework_1
